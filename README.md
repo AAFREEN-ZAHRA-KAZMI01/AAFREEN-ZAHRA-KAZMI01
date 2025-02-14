@@ -5,7 +5,6 @@
 - 😄 Pronouns: **She/Her**  
 - ⚡ Fun fact: **I love turning complex problems into simple, efficient solutions!**  
 
-Let me know if you need further tweaks! 😊
 
 <!---
 AAFREEN-ZAHRA-KAZMI01/AAFREEN-ZAHRA-KAZMI01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
